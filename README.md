@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zoynus
+- 👀 I’m interested in betterdiscord
+- 🌱 I’m currently earning money
+- 💞️ I’m looking to collaborate on my own life
+- 📫 How to reach me reg#2222
